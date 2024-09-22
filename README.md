@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ryandi26
+- 👀 I’m interested in FinTech, Finance, Blockchain Technology
+- 🌱 I’m currently studying FinTech with Data Analytics
